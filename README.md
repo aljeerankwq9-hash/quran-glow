@@ -10,7 +10,7 @@
 
 ## [⬇️ اضغط هنا وحمّل البلقن](https://github.com/aljeerankwq9-hash/quran-glow/raw/main/quran-glow.zip)
 
-`quran-glow.zip` · النسخة 2.0 · 638KB · **مجاني 100%**
+<p dir="rtl"><b>مجاني 100%</b> · الإصدار 2.0 · الحجم 638 كيلوبايت</p>
 
 </div>
 
